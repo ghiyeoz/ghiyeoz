@@ -1,2 +1,4 @@
-# Hi, I'm Giyos🥷🏻
-**Computer Engineering** student at **Chungbuk National University**, South Korea
+
+# Hi, I’m Giyos🥷🏻
+
+I’m a **Computer Engineering** student at **Chungbuk National University** in South Korea.
