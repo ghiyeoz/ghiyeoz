@@ -6,3 +6,6 @@ My name's Giyos. I'm a student at [CBNU](https://www.cbnu.ac.kr/english/index.do
 In my spare time, I enjoy hiking, exploring space, and drawing.
 
 Email ghiyeoz@gmail.com to reach me!
+
+Fluent in Russian, Korean, and Uzbek.
+
